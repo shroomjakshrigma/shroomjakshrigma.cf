@@ -1,5 +1,4 @@
-# Shroomjak Shrigma (SS)
-Buy it, became a Shrigma male or kys.
+# [PRESALE/AIRDROP HERE](https://t.me/joinchat/VHCtW7MF7HFmMTc0)
 ## 🛎 Tokenomics:
 🚀 No initial burn!  
 🚀 69420 total supply  
